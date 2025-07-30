@@ -1,2 +1,2 @@
 # Quiz-online
-Yang mengerjakan gue kasih pengertian 
+Yang mengerjakan dengan benar gue kasih penghargaan 
